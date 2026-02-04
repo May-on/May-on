@@ -9,4 +9,4 @@ I design and built anything that comes to my mind.
 Fun facts:
   - I love pets but don't have
   - Coffee preference is milk coffee
-  - Hobbies: Anime, Games, Badminton, Rock climbing, etc..
+  - Hobbies: Anime, Badminton, Games, Rock climbing, etc..
